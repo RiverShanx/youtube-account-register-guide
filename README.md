@@ -34,7 +34,7 @@ YouTube是谷歌旗下的一款产品，首先得需要一个[谷歌账号](http
 
 通过一个谷歌账号只能注册一个YouTube账号，如果想要运营多个YouTube账号或想要成品账号直接使用，也可以考虑使用第三方账号平台[账号星球](https://accboyytbxmdh.acceboy.com/zh-cn-cny/buy-ytb)提供的YouTube账号一键购买服务。
 
-https://www.xmpick.com/wp-content/uploads/2025/11/715c9c13bcbccb1.png<img width="1834" height="766" alt="image" src="https://github.com/user-attachments/assets/f5dc4e14-ab39-46a8-ae54-15bd6fd7eac0" />
+<img width="1834" height="766" alt="image" src="https://github.com/user-attachments/assets/f5dc4e14-ab39-46a8-ae54-15bd6fd7eac0" />
 
 以此来避免平台对新号的限制，用YouTube成品账号可以直接满足你运营需求，不管是内容创作开始进行直播等等可以直接上手使用。如果你要运营多个呢，还是要注意避免被平台封禁，建议考虑使用[AdsPower](https://www.adspower.net/share/6UNiqx)可以多账号进行运营，防止同一个IP下容易被封禁。
 
