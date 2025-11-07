@@ -1,4 +1,4 @@
-<img width="2232" height="1218" alt="image" src="https://github.com/user-attachments/assets/1d6216a4-7b24-4c58-905f-4db148ffc719" /># YouTube账号注册教程｜注册失败原因、购买渠道与运营技巧全攻略
+#YouTube账号注册教程｜注册失败原因、购买渠道与运营技巧全攻略
 
 YouTube是全球第一大视频分享平台，拥有超过25亿每月活跃用户。继谷歌搜索之后，YouTube是全球访问量第二大的网站，也是是使用率排第二位的社交平台，目前拥有1亿付费订阅者。
 
